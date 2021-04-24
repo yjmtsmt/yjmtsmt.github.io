@@ -1,1 +1,0 @@
-# yjmtsmt.github.io
